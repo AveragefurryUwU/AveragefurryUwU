@@ -1,0 +1,1 @@
+average stupid gay furry,
